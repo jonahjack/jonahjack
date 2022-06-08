@@ -2,4 +2,4 @@ hey i am jonah, i am a programer and you can find me everywhere my @ is jonahcja
 
 
 
-I am new to git and am learning how to use it
+I am new to git and am learning how to use it(edit: its not hard)
