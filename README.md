@@ -1,4 +1,4 @@
-hey i am jonah, i am a programer and you can find me everywhere my @ is jonahcjackson and my youtube is code9mill
+hey i am jonah, i am a programer.
 
 
 
